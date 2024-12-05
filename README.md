@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AishwaryaSiddaraju01
+- 👋 Hi, I’m @Aishwarya S
 - 👀 I’m interested in ...IT FEILD 
 - 🌱 I’m currently learning ... CODING SKILLS 
 - 💞️ I’m looking to collaborate on ... IT SECTOR 
